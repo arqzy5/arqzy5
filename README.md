@@ -2,7 +2,7 @@
 - 👀 I’m interested in video editing.
 - 🌱 I’m currently learning graphic design
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me arrqq012@gmail.com
 
 <!---
 arqzy5/arqzy5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
